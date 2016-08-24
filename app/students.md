@@ -8,7 +8,7 @@
 
 * Linsy is killin' it at ping pong.
 
-* Brian has been spoiling the whole class with gourmet meals every Friday.
+* Bama recently started a neighborhood watch. He dances naked in his window and all the neighbors watch.
 
 * Ed is often distracted by passing law enforcement, as he is wanted in 12 states and 4 countries.
 
