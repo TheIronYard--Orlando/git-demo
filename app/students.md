@@ -1,6 +1,6 @@
 # About the Class
 
-* Brandon has nothing to do but take this class, because he has no outside responsibilities.
+* Brandon is learning to juggle inbetween defining variables and functions. Barely making it, yet making it!
 
 * Lake is really hungry.
 
