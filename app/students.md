@@ -6,7 +6,7 @@
 
 * Kevin thinks the class is ok, but wishes we could go faster. Lots faster.
 
-* Linsy stays in the dark room working all the time, because she sucks at ping pong.
+* Linsy is killin' it at ping pong.
 
 * Brian has been spoiling the whole class with gourmet meals every Friday.
 
