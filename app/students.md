@@ -12,4 +12,4 @@
 
 * Ed is often distracted by passing law enforcement, as he is wanted in eleven states.
 
-* Joe, affectionately known as "slow Joe", is doing what he can, and we all hope for the best.
+* Joe is not slow! I think!
