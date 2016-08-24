@@ -2,7 +2,7 @@
 
 * Brandon has nothing to do but take this class, because he has no outside responsibilities.
 
-* Lake was lucky to join this class, because he just heard about it literally the day before it started.
+* Lake is really hungry.
 
 * Kevin thinks the class is ok, but wishes we could go faster. Lots faster.
 
