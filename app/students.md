@@ -4,7 +4,7 @@
 
 * Lake is really hungry.
 
-* Kevin thinks the class is ok, but wishes we could go faster. Lots faster.
+* Kevin thinks the class is just the right mix of fear, pain, joy, excitement, heartbreak, and sleepless nights.
 
 * Linsy is killin' it at ping pong.
 
